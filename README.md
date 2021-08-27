@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ayoub216
+- 👀 I’m interested in DEV FiveM and Python
+- 💞️ I’m looking to collaborate on https://discord.gg/U5d7afQvfq
+- 📫 How to reach me Ayoub216#5681
